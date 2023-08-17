@@ -1,0 +1,3 @@
+- 👋 Olá, eu sou a @caroltechrecruiter
+- Atuo como recrutadora de talentos tech
+- Sinta-se à vontade para me adicionar no linkedin: linkedin.com/in/caroline-brasil-b015a1196
